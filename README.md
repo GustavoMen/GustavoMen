@@ -17,7 +17,7 @@
 - A passionate Self-taught developer
 - Getting better on Mobile Development
 - Currently learning Web & Mobile Development by Self
-- Personal website [link](https://google.com)
+- Personal website [link](https://drive.google.com/file/d/1SMiwxmLHsv2Nc7Qs9G0R71lH7niB0BFL/view?usp=sharing)
 - I’m currently open for an Intern or a new job opportunity, this is [my resume](https://drive.google.com/file/d/1SMiwxmLHsv2Nc7Qs9G0R71lH7niB0BFL/view?usp=sharing)
 
 <br><br>
